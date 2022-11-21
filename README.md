@@ -4,6 +4,6 @@ SA3 Final Group Porject
 ## Team members:
 - 
 - d'Atri Sofia
-- 
+- De Filippo Loredana
 - 
 - 
